@@ -1,4 +1,34 @@
-### Hi there 👋
+She/her
+
+Kali says trans rights:
+```                                                                                
+      //(((((((((((/                                                            
+                              (#####                                            
+                                       %%%#                                     
+                 ,((((##############%%%%%%%                                     
+   ///                             .%%%%%,%                                     
+                          #####            %%          &                        
+                    ((                      %%%%%&&&&       &          Trans Rights
+              *(                          %%%%%     (&&&&&& &  @     /          
+          *                             %%%                 &&&@@,              
+                                       %%%                      @@@@            
+                                      %%%                         @@@,          
+                                      %%%                             @         
+                                       %%%                                      
+                                        %%%%                                    
+                                           %%%%%%&                              
+                                                  /&&&&&&&&&&&&@                
+                                                             &&@   @@@@         
+                                                                @@@     @@      
+                                                                   @@     @@    
+                                                                     @@     @   
+                                                                       @        
+                                                                        @       
+                                                                         @      
+                                                                          %     
+                                                                          @     
+```
+Good derg
 
 <!--
 **Space-G/Space-G** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
